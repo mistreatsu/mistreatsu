@@ -1,4 +1,4 @@
-![](https://github.com/mistreatsu/mistreatsu/blob/main/standard.gif)
+![](https://github.com/mistreatsu/mistreatsu/blob/main/banner.gif)
 
 
 - 👋 Hi, I’m @mistreatsu
