@@ -1,13 +1,9 @@
 ![](https://github.com/mistreatsu/mistreatsu/blob/main/banner.gif)
 
+hmu to work with me @
 
-- 👋 Hi, I’m @mistreatsu
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+discord @ mistreat#0001
+[twitter](https://twitter.com/mistreatsu)
+[my site](mistreatsu.com)
 
-<!---
-mistreatsu/mistreatsu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+if u aren't paying don't bother msging
