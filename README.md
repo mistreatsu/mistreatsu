@@ -1,3 +1,6 @@
+![](https://github.com/mistreatsu/mistreatsu/blob/main/standard.gif)
+
+
 - 👋 Hi, I’m @mistreatsu
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
